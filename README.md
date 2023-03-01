@@ -1,6 +1,6 @@
 ### Hi there! 👋
 
-I'm Golden, a UI/UX designer and blockchain enthusiast.
+I'm Golden, a UI/UX designer, Cybersecurity and Blockchain enthusiast.
  
 ⚡ Currently looking for the next big colab.
 
