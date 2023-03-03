@@ -8,11 +8,10 @@ Let's connect!
 
 
 - 📫 How to reach me?
+
   - Twitter: [@ChukwukereGold1](https://www.twitter.com/ChukwukereGold1)
 
   - Instagram: [@GoldenChukwukere_](https://www.instagram.com/GoldenChukwukere_)
 
   - LinkedIn: [Golden Chukwukere](https://www.linkedin.com/in/golden-chukwukere)
-
-
-# iamGolden
+  
